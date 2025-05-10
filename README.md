@@ -1,10 +1,3 @@
-# Utah-and-Natinal-VET-benefits
-Utah-and-Natinal-VET-benefits
-
-Great — I’ll compile a detailed breakdown of all federal and Utah state veteran benefits, discounts, education options, and free services for disabled veterans at each major VA disability rating (0%, 10%, 30%, 50%, 80%, 90%, and 100%). I’ll include specific details for areas around Hill Air Force Base, including Davis, Weber, Salt Lake, and nearby counties.
-
-I’ll dig into official state sites, VA resources, and community posts (like Reddit) to make sure this report covers every benefit available. I’ll let you know when it’s ready for your review.
-
 
 # Utah Veteran Benefits by VA Disability Rating (Northern Utah Focus)
 
